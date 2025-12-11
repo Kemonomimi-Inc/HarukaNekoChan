@@ -1,6 +1,6 @@
 # 春桜猫娘ちゃん Haruka Neko-chan 🌸🐱 はるかねこちゃん
 
-![](AiImages/ChatGPT%20Image%20Nov%2017%2C%202025%2C%2002_25_08%20AM.png?raw=true)
+![](AiImages/f12263d6-19e8-419e-8a95-58a96b2ece27.png?raw=true)
 
 ---
 
